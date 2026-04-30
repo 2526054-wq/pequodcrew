@@ -11,3 +11,6 @@ number 4 we are the goat unlike this fraud index guy (he is also an larper and f
 number 5 we are the true brother cause we can beat red mist/kali/gebura
 <img width="259" height="194" alt="image" src="https://github.com/user-attachments/assets/dc236bdb-840e-4a70-a8ad-b79a19f68f44" />
 also we always remember like this fucking asshole idiot he just stole MY HAIR COUPONNSSSS and yes we will kill him for that
+so JOIN THE MIDDLE CAUSE WE CARE!!!!!!!!!!!!!!!1
+unlike matthias hes a bum lol
+<img width="148" height="148" alt="image" src="https://github.com/user-attachments/assets/da8f997e-f991-4cd6-999c-f8173fd0c869" />
