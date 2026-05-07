@@ -8,7 +8,7 @@ number 3 who care's about killing human for art? cause we don't do it we only do
 <img width="111" height="150" alt="image" src="https://github.com/user-attachments/assets/f8d30982-bafd-429f-a4c2-bc4de430f954" />
 number 4 we are the goat unlike this fraud index guy (he is also an larper and fraud who died to his own daugher)
 <img width="92" height="92" alt="image" src="https://github.com/user-attachments/assets/856f8349-a091-424e-bca1-7b3175d0c75f" />
-number 5 we are the true brother cause we can beat red mist/kali/gebura
+number 5 we are the true brother cause we can beat red mist/binah and roland/xiao
 <img width="259" height="194" alt="image" src="https://github.com/user-attachments/assets/dc236bdb-840e-4a70-a8ad-b79a19f68f44" />
 also we always remember like this fucking asshole idiot he just stole MY HAIR COUPONNSSSS and yes we will kill him for that
 so JOIN THE MIDDLE CAUSE WE CARE!!!!!!!!!!!!!!!1
